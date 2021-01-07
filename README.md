@@ -1,1 +1,1 @@
-# emilyjin
+# Emily Jin
